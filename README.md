@@ -1,5 +1,5 @@
 # Alooooo, Welcomee to My Github ✌️
-### 🌸 Hai, Aku Kartika!
+### 🌸 Hai, Aku Dyah Avri kartika Hapsari!
 Mahasiswa akhir semester dari Teknik Informatika yang sedang meniti jalan di dunia desain antarmuka dan pengembangan web.
 Percaya bahwa desain bukan cuma soal tampilan, tapi soal perasaan dan pengalaman. ✨
 
